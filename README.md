@@ -1,4 +1,4 @@
-# 👋Hello, I'm Mayuri Naik
+# 👋Hello, I'm Mayuri Ambildhoke
 
 ## 💼 About Me
 
